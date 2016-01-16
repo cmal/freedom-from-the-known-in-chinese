@@ -1,0 +1,109 @@
+Chapter 10 第十章
+================
+  The demand to be safe in relationship inevitably breeds sorrow and fear. This seeking for security is inviting insecurity. Have you ever found security in any of your relationships? Have you? Most of us want the security of loving and being loved, but is there love when each one of us is seeking his own security, his own particular path? We are not loved because we don't know how to love.
+
+  关系中，对于安全感的需求不可避免地会滋生悲伤和恐惧。这种对于安全感的寻求把不安全感请进来了。你曾在你的任何关系中找到过安全感吗？有吗？我们大多数人想要爱和被爱的安全感，但是当我们双方都在寻求自己的安全感、自己特有的路的时候，会有爱存在吗？我们没有被爱，是因为我们不懂得怎样去爱。
+
+  What is love? The word is so loaded and corrupted that I hardly like to use it. Everybody talks of love - every magazine and newspaper and every missionary talks everlastingly of love. I love my country, I love my king, I love some book, I love that mountain, I love pleasure, I love my wife, I love God. Is love an idea? If it is, it can be cultivated, nourished, cherished, pushed around, twisted in any way you like. When you say you love God what does it mean? It means that you love a projection of your own imagination, a projection of yourself clothed in certain forms of respectability according to what you think is noble and holy; so to say, `I love God', is absolute nonsense. When you worship God you are worshipping yourself - and that is not love.
+
+  爱是什么？这个字眼承载得太多、被腐蚀得太多了，以至于我几乎不想去用它了。每个人都在讨论爱 －－ 每种杂志和报纸、每个传教士都在不断地讨论爱。我爱我的国家，我爱我的国王，我爱某本书，我爱山，我爱快乐，我爱我妻子，我爱上帝。爱是一种观念吗？如果是，爱就可以被培养、滋润、珍视、摆布、扭曲，用任何你喜欢的方式。当你说你爱上帝的时候，这个爱是什么意思呢？它意味着你爱对你自己的想象的一种保护，根据你认为的高贵和神圣的方式、对穿上某种形式的体面的外衣的“自己”的一种保护；故，说“我爱上帝”是绝对的荒谬。当你崇拜上帝的时候，你就是在崇拜你自己， －－ 那不是爱。
+
+  Because we cannot solve this human thing called love we run away into abstractions. Love may be the ultimate solution to all man's difficulties, problems and travails, so how are we going to find out what love is? By merely defining it? The church has defined it one way, society another and there are all sorts of deviations and perversions. Adoring someone, sleeping with someone, the emotional exchange, the companionship - is that what we mean by love? That has been the norm, the pattern, and it has become so tremendously personal, sensuous, and limited that religions have declared that love is something much more than this. In what they call human love they see there is pleasure, competition, jealousy, the desire to possess, to hold, to control and to interfere with another's thinking, and knowing the complexity of all this they say there must be another kind of love, divine beautiful untouched, uncorrupted.
+
+  因为我们不能解决人类的这个叫做“爱”的问题，我们逃进了抽象中。爱，对于人的所有困难、问题和痛苦，可能是终极的解决方式，故我们如何能弄明白爱是什么？只是通过定义它？教会已经用一种方式定义了它，社会用另一种方式，还有五花八门的背离和曲解。喜爱某人、和某人睡觉、交换情绪、陪伴 －－ 这就是我们所谓爱的意义吗？那些（所谓的爱）已经成为了标准、范式，它们已经变得极度私人化、感官化、受限制，以至于宗教宣称，爱是一种远远超出上述意义的东西。宗教所称的人类的爱，有快乐、竞争、妒忌、占有欲，以及支配、控制、干涉他人的思考，知道了所有这些的复杂性，他们说，一定有某种爱是神圣、美丽、未被触及的，未被腐蚀的。
+
+  Throughout the world, so-called holy men have maintained that to look at a woman is something totally wrong: they say you cannot come near to God if you indulge in sex, therefore they push it aside although they are eaten up with it. But by denying sexuality they put out their eyes and cut out their tongues for they deny the whole beauty of the earth. They have starved their hearts and minds; they are dehydrated human beings; they have banished beauty because beauty is associated with woman.
+
+  纵观整个世界，所谓的神圣的人一直主张，直视女人是完全错误的：他们说你如果沉迷于性就不能接近上帝，因而他们将性撇到一边，尽管他们（也）对性很感兴趣。但是否定性欲对他们来说就是剜目割舌，因为他们否定了地球的全部的美。他们的心智忍受着饥饿；他们是脱了水的人类；他们驱逐美，因为美跟女人相关联。
+
+  Can love be divided into the sacred and the profane, the human and the divine, or is there only love? Is love of the one and not of the many? If I say, `I love you', does that exclude the love of the other? Is love personal or impersonal? Moral or immoral? Family or non-family? If you love mankind can you love the particular? Is love sentiment? Is love emotion? Is love pleasure and desire? All these questions indicate, don't they, that we have ideas about love, ideas about what it should or should not be, a pattern or a code developed by the culture in which we live.
+
+  爱能区分神圣的和世俗的、世人的和圣人的吗？还是说那只是爱？爱是对一个人而非对许多人的吗？如果我说，“我爱你”，那就排除了我对其他人的爱吗？爱是个人的还是非个人的？道德的还是不道德的？家庭的还是非家庭的？如果你爱人类，你能爱个别的人吗？爱是感情吗？爱是情绪吗？爱是快乐和欲望吗？所有这些问题表明，我们对爱持有观念，对爱应该或不应该是什么有观念，这种观念就是我们生活于其中的文化所发展出来的一个模式或准则。难道不是吗？
+
+  So to go into the question of what love is we must first free it from the encrustation of centuries, put away all ideals and ideologies of what it should or should not be. To divide anything into what should be and what is, is the most deceptive way of dealing with life.
+
+  所以，深入爱是什么这个问题，我们必须首先将爱从千百年来形成的厚壳中解放出来，将所有那些爱应该是什么、不应该是什么的理想和意识形态放到一边。把任何东西的应然和实然分开，是处理生活问题的最具欺骗性的方式。
+
+  Now how am I going to find out what this flame is which we call love - not how to express it to another but what it means in itself? I will first reject what the church, what society, what my parents and friends, what every person and every book has said about it because I want to find out for myself what it is. Here is an enormous problem that involves the whole of mankind, there have been a thousand ways of defining it and I myself am caught in some pattern or other according to what I like or enjoy at the moment - so shouldn't I, in order to understand it, first free myself from my own inclinations and prejudices? I am confused, torn by my own desires, so I say to myself, 'First clear up your own confusion. perhaps you may be able to discover what love is through what it is not.'
+
+  现在，我要如何弄明白这个我成为“爱”的火焰是什么呢 －－ 不是如何将其表达给另一个人，而是它本身意味着什么呢？我首先会拒绝教会、社会、父母和朋友、每个人、每本书所说的关于爱的内容，因为我想自己弄明白。这是个囊括所有人类的巨大的问题，曾经有过上千种方式来定义爱，而我自己，由于当时的喜好或感受，被困在了一种或另一种模式中 －－ 那么，为了理解爱，难道我不能首先将我从我自己的倾向和偏见中解脱出来吗？我困惑，被自己的欲望所折磨，故我对自己说，“首先扫除你的困惑，也许你就能通过什么不是爱，来发现爱是什么了。”
+
+  The government says, `Go and kill for the love of your country'. Is that love? Religion says, `Give up sex for the love of God'. Is that love? Is love desire? Don't say no. For most of us it is - desire with pleasure, the pleasure that is derived through the senses, through sexual attachment and fulfilment. I am not against sex, but see what is involved in it. What sex gives you momentarily is the total abandonment of yourself, then you are back again with your turmoil, so you want a repetition over and over again of that state in which there is no worry, no problem, no self. You say you love your wife. In that love is involved sexual pleasure, the pleasure of having someone in the house to look after your children, to cook. You depend on her; she has given you her body, her emotions, her encouragement, a certain feeling of security and well-being. Then she turns away from you; she gets bored or goes off with someone else, and your whole emotional balance is destroyed, and this disturbance, which you don't like, is called jealousy. There is pain in it, anxiety, hate and violence. So what you are really saying is, `As long as you belong to me I love you but the moment you don't I begin to hate you. As long as I can rely on you to satisfy my demands, sexual and otherwise, I love you, but the moment you cease to supply what I want I don't like you.' So there is antagonism between you, there is separation, and when you feel separate from another there is no love. But if you can live with your wife without thought creating all these contradictory states, these endless quarrels in yourself, then perhaps - perhaps - you will know what love is. Then you are completely free and so is she, whereas if you depend on her for all your pleasure you are a slave to her. So when one loves there must be freedom, not only from the other person but from oneself.
+
+  政府说，“爱你的国家就去杀人吧。”这是爱吗？宗教说，“爱上帝就放弃性吧。”这是爱吗？爱是欲望吗？不要说不是。对于我们大多数人来说是的 －－ 是对快乐的欲望，即通过感官，通过性依恋和满足，衍生出来的快乐。我不是反对性，而是要看到它里面包含了什么。性短暂地给你的东西，是对自己的完全放纵，这之后你又回到原来的混乱状态了，故你想要重复、再重复那种状态，那种没有焦虑、没有问题、没有自我的状态。你说你爱你的妻子。在那种爱中包含着性的快乐，和有人在家里照看你的孩子、为你做饭的快乐。你依赖于她；她给了你她的身体、她的情绪、她的鼓励、一种特定的安全感和幸福感。然后她转身离开你；她厌倦了、跟别人离去了，而你的整个情绪平衡被打破了，而这种你不喜欢的困扰叫做嫉妒。其中有痛苦、焦虑、憎恨和暴力。故你真正在说的是，“只要你属于我我就爱你而不属于我的时候我就恨你。只要我可以依赖你来满足我的需求，性需求或其他需求，我就爱你，但是一旦你停止给我我想要的，我就不喜欢你了。”故你们之间存在敌意，有分隔，而（事实是）当你感觉你与他人有分隔的时候，就不（会）存在爱。但是如果你能够与你的妻子一起生活，而（同时）你（们）的心中不带有创造了所有这些矛盾状态、无尽的争吵的思想，那么也许 －－ （只是）也许 －－ 你就会知道爱是什么。那时你就完全的自由了，而她也是一样，反之如果你依赖她给予你所有的快乐，你就是她的奴隶。故当一个人爱的时候，一定（要）有自由，不仅仅是（不依赖）于另一方，而且（不依赖）于你自己。
+
+  This belonging to another, being psychologically nourished by another, depending on another - in all this there must always be anxiety, fear, jealousy, guilt, and so long as there is fear there is no love; a mind ridden with sorrow will never know what love is; sentimentality and emotionalism have nothing whatsoever to do with love. And so love is not to do with pleasure and desire.
+
+  这种属于别人、精神上被别人滋养、依赖于别人 －－ 所有这些中，一定总是存在焦虑、恐惧、嫉妒、内疚、而只要存在恐惧就没有爱；一个与悲伤同行的心智，永远不会知道爱是什么；多愁善感（sentimentality and emotionalism）与爱没有一丝半点的关系。故爱与快乐和欲望无关。
+
+  Love is not the product of thought which is the past. Thought cannot possibly cultivate love. Love is not hedged about and caught in jealousy, for jealousy is of the past. Love is always active present. It is not `I will love' or `I have loved'. If you know love you will not follow anybody. Love does not obey. When you love there is neither respect nor disrespect.
+
+  爱不是思想的产物，思想是过去。思想不可能培养爱。爱不是（将自己）困在嫉妒中，因为嫉妒是过去的。爱总是活跃在当下。没有“我将爱”或“我爱过”。如果你知道爱，你就不会追随任何人。爱不是服从。当你爱的时候，既没有尊敬也没有不敬。
+
+  Don't you know what it means really to love somebody to love without hate, without jealousy, without anger, without wanting to interfere with what he is doing or thinking, without condemning, without comparing - don't you know what it means? Where there is love is there comparison? When you love someone with all your heart, with all your mind, with all your body, with your entire being, is there comparison? When you totally abandon yourself to that love there is not the other.
+
+  你难道不知道，爱某人，没有恨地爱、没有嫉妒、愤怒、想要干涉他的所为和所想地爱，没有谴责、没有比较地爱，真正意味着什么吗？当有爱的时候会有比较吗？当你以你的全部心意、全部心智、全部身体、全部存在爱某人的时候，会有比较吗？当你完全放弃你自己而投入爱中的时候，是没有（上述）对立面的。
+
+  Does love have responsibility and duty, and will it use those words? When you do something out of duty is there any love in it? In duty there is no love. The structure of duty in which the human being is caught is destroying him. So long as you are compelled to do something because it is your duty you don't love what you are doing. When there is love there is no duty and no responsibility.
+
+  爱有责任心（responsibility）和责任（duty，义务）吗，它会使用这些词吗？当你出于责任做某事的时候，其中有爱吗？在责任中没有爱。人类被困在了责任的结构中，这种东西正在毁灭他。只要你被迫做某事，因为这是你的责任，你就不会爱你正在做的事情。当有爱的时候是没有责任和责任心的。
+
+  Most parents unfortunately think they are responsible for their children and their sense of responsibility takes the form of telling them what they should do and what they should not do, what they should become and what they should not become. The parents want their children to have a secure position in society. What they call responsibility is part of that respectability they worship; and it seems to me that where there is respectability there is no order; they are concerned only with becoming a perfect bourgeois. When they prepare their children to fit into society they are perpetuating war, conflict and brutality. Do you call that care and love?
+
+  大多数家长不幸地认为他们对他们的孩子负有责任，他们的责任感表现为告诉孩子他们应该做什么、不应该做什么、应该成为什么样子、不应该成为什么样子。父母想要他们的孩子在社会上有个安全的地位。他们叫做责任心的东西，是他们所崇拜的“体面”；而窃以为，只要有责任心，就没有秩序；他们只关心如何成为一个完美的中产阶级（bourgeois）。当他们让它们的孩子为适应社会做好准备的时候，他们就是在延续战争、冲突和暴行。你把这叫做关心和爱吗？
+
+  Really to care is to care as you would for a tree or a plant, watering it, studying its needs, the best soil for it, looking after it with gentleness and tenderness - but when you prepare your children to fit into society you are preparing them to be killed. If you loved your children you would have no war.
+
+  真正的关心，就像你关心一棵树或一株植物一样，为它浇水，研究它的需要，为它培最好的土壤，怀着亲切和柔情照顾它 －－ 而当你让你的孩子为适应社会做好准备的时候，你就是在让他们被杀做好准备。如果你爱你的孩子，你们就不会有战争。
+
+  When you lose someone you love you shed tears - are your tears for yourself or for the one who is dead? Are you crying for yourself or for another? Have you ever cried for another? Have you ever cried for your son who was killed on the battlefield? You have cried, but do those tears come out of self-pity or have you cried because a human being has been killed? If you cry out of self-pity your tears have no meaning because you are concerned about yourself. If you are crying because you are bereft of one in whom you have invested a great deal of affection, it was not really affection. When you cry for your brother who dies cry for him. It is very easy to cry for yourself because he is gone. Apparently you are crying because your heart is touched, but it is not touched for him, it is only touched by self-pity and self-pity makes you hard, encloses you, makes you dull and stupid.
+
+  当你失去某个你爱的人的时候，你会流泪 －－ 你的泪水是为你自己而流还是为那个死去的人而流？你为自己而哭泣还是为别人而哭泣？你曾经为别人哭泣过吗？你曾经为你在战场上死去的孩子哭泣过吗？你曾哭过，但那些泪水是出于自怜，还是因为那是一个人类被杀死了？如果你因为自怜而哭泣，你的泪水就没有意义，因为你关心的是你自己。如果你是因为你被剥夺了一个你曾投资了大量的情感于其上的人而哭泣，那就不是真的感情。当你为你死去的兄弟哭泣的时候，你就哭吧。为自己而哭泣很容易，因为他走了。显然，你是因为你的心被触动了而哭泣，但不是被他所触动，只是被自怜而触动，而自怜让你无情、封闭了你、让你麻木和愚蠢。
+
+  When you cry for yourself, is it love - crying because you are lonely, because you have been left, because you are no longer powerful - complaining of your lot, your environment - always you in tears? If you understand this, which means to come in contact with it as directly as you would touch a tree or a pillar or a hand, then you will see that sorrow is self-created, sorrow is created by thought, sorrow is the outcome of time. I had my brother three years ago, now he is dead, now I am lonely, aching, there is no one to whom I can look for comfort or companionship, and it brings tears to my eyes.
+
+  当你为自己而哭泣的时候 －－ 由于你孤独、因为你被留了下来，因为你不再有力量 －－ 抱怨你的命运、你的环境 －－ 眼泪中总是你，那是爱吗？如果你理解这一点，也就是说你直接地接触它，就像触摸树或柱子或手一样直接地接触它，那么你会发现，悲伤是自己创造的，悲伤被思想所创造，悲伤是时间的结果。三年前我的兄弟还在我身边，现在他死了，现在我孤独了、痛了，没有我能寻求舒适或陪伴的人了，这使我的眼睛流出了泪水。
+
+  You can see all this happening inside yourself if you watch it. You can see it fully, completely, in one glance, not take analytical time over it. You can see in a moment the whole structure and nature of this shoddy little thing called `me', my tears, my family, my nation, my belief, my religion - all that ugliness, it is all inside you. When you see it with your heart, not with your mind, when you see it from the very bottom of your heart, then you have the key that will end sorrow. Sorrow and love cannot go together, but in the Christian world they have idealized suffering, put it on a cross and worshipped it, implying that you can never escape from suffering except through that one particular door, and this is the whole structure of an exploiting religious society.
+
+  如果你观察，你会发现所有这一切都正发生在你自己的内心。你可以在一瞥之间完全、完整地看到它，不需花费时间分析它。你可以在瞬间看到这个所谓的“我”的这个劣质渺小的东西的整个结构和本质，我的泪水、我的家庭、我的国家、我的信仰、我的宗教 －－ 所有这些丑陋的东西，这就是你内心的一切。当你用你的心（heart）、而不是你的头脑（mind）看到它，当你从你的内心最深处看到它，那时你就拥有了能够终结这悲伤的钥匙。悲伤和爱不能共存，但是在基督徒的世界里，他们理想化了受苦，将其放在十字架上崇拜它，暗示着除非通过那个特定的门否则永远不能逃脱受苦，这就是一个剥削性的宗教组织的整个结构。
+
+  So when you ask what love is, you may be too frightened to see the answer. It may mean complete upheaval; it may break up the family; you may discover that you do not love your wife or husband or children - do you? - you may have to shatter the house you have built, you may never go back to the temple.
+
+  因此当你问爱是什么的时候，你可能因为害怕而无法看到答案。它可能意味着完全的剧变；它可能让你的家庭破裂；你可能会发现你不爱你的妻子或丈夫或孩子 －－ 是不是？ －－ 你可能不得不将你建立起来的家庭打破，你可能再也回不到寺庙中去了。
+
+  But if you still want to find out, you will see that fear is not love, dependence is not love, jealousy is not love, possessiveness and domination are not love, responsibility and duty are not love, self-pity is not love, the agony of not being loved is not love, love is not the opposite of hate any more than humility is the opposite of vanity. So if you can eliminate all these, not by forcing them but by washing them away as the rain washes the dust of many days from a leaf, then perhaps you will come upon this strange flower which man always hungers after.
+
+  但是，如果你仍然想要弄明白，你就会发现恐惧不是爱，依赖不是爱，嫉妒不是爱，占有和控制不是爱，责任心和义务不是爱，自怜不是爱，不被爱的挣扎不是爱，爱不是恨的对立面，就像谦虚不是虚荣的对立面一样。故如果你能消除所有这些，不是通过强迫，而是通过将它们洗去，就像雨水洗去叶面上多日攒下的灰尘一样，那么也许，你就会遇到人一直在渴求追寻的奇异花朵。
+
+  If you have not got love - not just in little drops but in abundance - if you are not filled with it - the world will go to disaster. You know intellectually that the unity of mankind is essential and that love is the only way, but who is going to teach you how to love? Will any authority, any method, any system, tell you how to love? If anyone tells you, it is not love. Can you say, `I will practise love. I will sit down day after day and think about it. I will practise being kind and gentle and force myself to pay attention to others'? Do you mean to say that you can discipline yourself to love, exercise the will to love? When you exercise discipline and will to love, love goes out of the window. By practising some method or system of loving you may become extraordinarily clever or more kindly or get into a state of non-violence, but that has nothing whatsoever to do with love.
+
+  如果你没有爱 －－ 不是指点滴的爱而是丰富的爱 －－ 如果你不是充满爱 －－ 世界就会陷入灾难。你在理性上知道，人类的一体是必要的，而爱是唯一的方式，但是谁来教你如何去爱？会有任何权威、任何方法、任何系统告诉你如何爱吗？如果有任何人告诉你，那就不是爱。你能说，“我会练习爱。我会日复一日地坐下思考爱。我会练习变得友善、温和，并强迫自己关注他人”吗？你的意思是你能自律去爱，练习你的意志去爱吗？当你练习纪律和意志的时候，爱就从窗口溜走了。通过执行某种（练习）爱的方法或系统，你可能变得聪明非凡、或者更友善或者到达一种非暴力的状态，但是那与爱没有半点关系。
+
+  In this torn desert world there is no love because pleasure and desire play the greatest roles, yet without love your daily life has no meaning. And you cannot have love if there is no beauty. Beauty is not something you see - not a beautiful tree, a beautiful picture, a beautiful building or a beautiful woman. There is beauty only when your heart and mind know what love is. Without love and that sense of beauty there is no virtue, and you know very well that, do what you will, improve society, feed the poor, you will only be creating more mischief, for without love there is only ugliness and poverty in your own heart and mind. But when there is love and beauty, whatever you do is right, whatever you do is in order. If you know how to love, then you can do what you like because it will solve all other problems.
+
+  在这个破碎荒凉的世界里没有爱，因为快乐和欲望扮演者最重要的角色，然而没有爱，你每天的生活就没有意义。而如果没有美，你就不能有爱。美不是某种你看到的东西 －－ 不是一棵美丽的树，一幅美丽的话，一幢美丽的建筑或一个美丽的女人。唯有当你的心和头脑（mind）知道爱是什么的时候，才有美。没有爱和那种审美的感觉，就没有美德，而你非常清楚的是，通过做你想做的，改善社会、救济穷人，你只会创造更多的伤害，因为，若没有爱，你的内心和头脑中就只有丑陋和贫困。但是，当有爱与美的时候，不管你做什么都是对的，你做的任何事情都是井然有序的。如果你知道如何去爱，那么你就能做你喜欢的事情，因为那能（一并）解决所有其他问题。
+
+  So we reach the point: can the mind come upon love without discipline, without thought, without enforcement, without any book, any teacher or leader - come upon it as one comes upon a lovely sunset?
+
+  故我们说到要点了：心智能否在没有约束、没有思想、没有强制、没有任何书籍、老师和向导的情况下遇见爱 －－ 就像人遇见可爱的日落一样？
+
+  It seems to me that one thing is absolutely necessary and that is passion without motive - passion that is not the result of some commitment or attachment, passion that is not lust. A man who does not know what passion is will never know love because love can come into being only when there is total self-abandonment.
+
+  窃以为，有一种东西是绝对必要的，那就是激情（passion，热情），没有动机的激情 －－ 没有承诺和依恋的激情，没有贪欲的激情。不知道激情是什么的人永远不会知道爱是什么，因为唯有当完全无我（self-abandonment）的时候，爱才会出现。
+
+  A mind that is seeking is not a passionate mind and to come upon love without seeking it is the only way to find it - to come upon it unknowingly and not as the result of any effort or experience. Such a love, you will find, is not of time; such a love is both personal and impersonal, is both the one and the many. Like a flower that has perfume you can smell it or pass it by. That flower is for everybody and for the one who takes trouble to breathe it deeply and look at it with delight. Whether one is very near in the garden, or very far away, it is the same to the flower because it is full of that perfume and therefore it is sharing with everybody.
+
+  一个不寻求的心智不是有激情的心智，不通过寻求而遇见爱是发现爱的唯一方式 －－ 在不知的情况下遇见爱，而不是任何努力或经验的结果。这样的爱，你会发现，跟时间无关；这样的爱既是个人的也是非个人的，既是一个人的又是许多人的。就像花儿的芬芳，你能闻到它或者忽略它。那花儿是每一个人的，也是那个怀着欣喜尽力深呼吸和看它的人的。不管这个人是离花园非常近，还是非常远，对这朵花来说是一样的，因为它满是芬芳，因而与每个人分享。
+
+  Love is something that is new, fresh, alive. It has no yesterday and no tomorrow. It is beyond the turmoil of thought. It is only the innocent mind which knows what love is, and the innocent mind can live in the world which is not innocent. To find this extraordinary thing which man has sought endlessly through sacrifice, through worship, through relationship, through sex, through every form of pleasure and pain, is only possible when thought comes to understand itself and comes naturally to an end. Then love has no opposite, then love has no conflict.
+
+  爱是新的、新鲜的、活的东西。爱没有昨天和明天。爱超越了思想的混乱。唯有无知的（innocent，单纯的）头脑才知道爱是什么。而无知的头脑能够活在并不单纯的世界上。人类不断通过牺牲、崇拜、关系、性、通过任何快乐或痛苦的形式寻求的这非凡的东西，唯有当思想逐渐理解了自身、并且自然地结束的时候，才有可能被找到。那时爱就没有对立面了，那时爱就没有冲突了。
+
+  You may ask, `If I find such a love, what happens to my wife, my children, my family? They must have security.' When you put such a question you have never been outside the field of thought, the field of consciousness. When once you have been outside that field you will never ask such a question because then you will know what love is in which there is no thought and therefore no time. You may read this mesmerized and enchanted, but actually to go beyond thought and time - which means going beyond sorrow - is to be aware that there is a different dimension called love.
+
+  你可能会问，“如果我找到了这种爱，我的妻子、孩子、家庭会发生什么？他们也得安全（才行）。”当你提出这样的问题的时候，你还未到达思想的领域、意识的领域之外。一旦你到达那领域之外，你就永远不会问这样的问题了，因为你会知道爱是什么，在爱中没有思想因而也没有时间。你可能读到这里会入迷或陶醉，但是要实际地超越思想和时间 －－ 意味着超越悲伤 －－ 就是要知道，有一个不同的维度，那叫做爱。
+
+  But you don't know how to come to this extraordinary fount - so what do you do? If you don't know what to do, you do nothing, don't you? Absolutely nothing. Then inwardly you are completely silent. Do you understand what that means? It means that you are not seeking, not wanting, not pursuing; there is no centre at all. Then there is love.
+
+  但是你不知道如何到达这个非凡的（爱）泉 －－ 故你要做什么呢？如果你不知道做什么，你就什么也不做，是不是？绝对不做任何事。那么内心里你就完全的静默了。你理解那意味着什么吗？那意味着你没有在寻求、没有想要、没有追逐；完全没有中心。那时就有爱了。

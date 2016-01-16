@@ -1,0 +1,81 @@
+Chapter 11 第十一章
+===================
+  We have been enquiring into the nature of love and have come to a point, I think, which needs much greater penetration, a much greater awareness of the issue. We have discovered that for most people love means comfort, security, a guarantee for the rest of their lives of continuous emotional satisfaction. Then someone like me comes along and says, 'Is that really love?' and questions you and asks you to look inside yourself. And you try not to look because it is very disturbing - you would rather discuss the soul or the political or economic situation - but when you are driven into a corner to look, you realize that what you have always thought of as love is not love at all; it is a mutual gratification, a mutual exploitation.
+
+  我们一直在探寻爱的本质，我认为现在到达了一个关键点，现在对这个问题需要有比以往多很多的深入和觉察。我们已然发现，对于大多数人来说，爱意味着舒服、安全、对余生持续情感满足的保证。这时某个像我一样的人来了，说，“那是真的爱吗？”并且质疑你，要求你看自己的内心。而你企图不看，因为那太令人不安了 －－ 你宁愿谈论灵魂或者政治经济形势 －－ 但是当你走投无路必须要看的时候，你意识到你一直都认为是爱的东西完全不是爱；是相互的满足和利用。
+
+  When I say, `Love has no tomorrow and no yesterday', or, `When there is no centre then there is love', it has reality for me but not for you. You may quote it and make it into a formula but that has no validity. You have to see it for yourself, but to do so there must be freedom to look, freedom from all condemnation, all judgement all agreeing or disagreeing.
+
+  当我说，“爱没有明天和昨天”或“当没有中心的时候就有爱”，的时候，对我来说是有现实（基础）的，但对你来说没有。你可能引述它，让它成为教条，但是这样做一点用也没有。你得自己看到它，但是要看到就一定要有看的自由，即从所有的谴责、所有的判断、所有的同意和不同意中解脱出来的自由。
+
+  Now, to look is one of the most difficult things in life - or to listen - to look and listen are the same. If your eyes are blinded with your worries, you cannot see the beauty of the sunset. Most of us have lost touch with nature. Civiliza- tion is tending more and more towards large cities; we are becoming more and more an urban people, living in crowded apartments and having very little space even to look at the sky of an evening and morning, and therefore we are losing touch with a great deal of beauty. I don't know if you have noticed how few of us look at a sunrise or a sunset or the moonlight or the reflection of light on water.
+
+  现在，看 －－ 或者说听 －－是生活中最难的一件事情，看和听是一样的。如果你的眼睛被焦虑所蒙蔽，你就看不到日落之美。我们大多数人失去了与自然的接触。文明，越来越朝向大城市；我们越来越变成了城市人，住在拥挤的公寓，空间很小，甚至看不到夜晚和早晨的天空，因而，我们正失去与许多美的联系。我不知道你是否注意到了我们看日出日落、月光或水面倒影的频率有多么少。
+
+  Having lost touch with nature we naturally tend to develop intellectual capacities. We read a great many books, go to a great many museums and concerts, watch television and have many other entertainments. We quote endlessly from other people's ideas and think and talk a great deal about art. Why is it that we depend so much upon art? Is it a form of escape, of stimulation? If you are directly in contact with nature; if you watch the movement of a bird on the wing, see the beauty of every movement of the sky, watch the shadows on the hills or the beauty on the face of another, do you think you will want to go to any museum to look at any picture? Perhaps it is because you do not know how to look at all the things about you that you resort to some form of drug to stimulate you to see better.
+
+  失去了与大自然的接触，我们自然地就会倾向于发展理性的能力。我们读许许多多的书籍，去许许多多的展览馆和音乐会，看电视、以及有许多别的娱乐形式。我们不断地引述他人的观点，大量思考和讨论艺术。我们为什么如此依赖于艺术？是一种逃避的形式、刺激的形式吗？如果你直接与自然接触；如果你看着鸟儿飞行，看到天空的每种移动的美，看山上的影子或他人脸上的美丽，你认为你还会想去展览馆看画吗？也许这是因为你不知道如何看你周围的所有东西，所以你诉诸某种形式，就像毒品，刺激你去看得更清楚。
+
+  There is a story of a religious teacher who used to talk every morning to his disciples. One morning he got on to the platform and was just about to begin when a little bird came and sat on the window sill and began to sing, and sang away with full heart. Then it stopped and flew away and the teacher said, `The sermon for this morning is over'.
+
+  有一个宗教导师的故事，他过去每天早晨都教授他的门徒。一个早晨他走上讲台正要开讲，一只小鸟来了站在窗台上开始唱歌，全心全意地唱。然后它停下来飞走了。导师说，“今早的布道结束了。”
+
+  It seems to me that one of our greatest difficulties is to see for ourselves really clearly, not only outward things but inward life. When we say we see a tree or a flower or a person, do we actually see them? Or do we merely see the image that the word has created? That is, when you look at a tree or at a cloud of an evening full of light and delight, do you actually see it, not only with your eyes and intellectually, but totally, completely?
+
+  窃以为我们最大的困难之一就是自己去真正清楚地看，不仅是外在的东西还有内在的生活。当我们说我们看到一棵树或一朵花或一个人，我们真的看到他们了吗？还是我们只是看到了那个词语创造出来的意象？那就是说，当你在一个满是光和欣喜的傍晚看一棵树或一朵云的时候，你真的看到它了吗，不仅是用你的眼睛和理性，而且用你的全部、完整地看到？
+
+  Have you ever experimented with looking at an objective thing like a tree without any of the associations, any of the knowledge you have acquired about it, without any prejudice, any judgement, any words forming a screen between you and the tree and preventing you from seeing it as it actually is? Try it and see what actually takes place when you observe the tree with all your being, with the totality of your energy. In that intensity you will find that there is no observer at all; there is only attention. It is when there is inattention that there is the observer and the observed. When you are looking at something with complete attention there is no space for a conception, a formula or a memory. This is important to understand because we are going into something which requires very careful investigation.
+
+  你曾经是否经历过，看一个客观的东西如一棵树，没有任何的联想，没有任何你曾获得的关于它的知识，没有任何偏见、任何判断、任何言语在你和树之间形成的屏障去阻碍你看到树真实的样子？当你用你的全部存在、全部精力观察树的时候，尝试一下，看看实际会发生什么。在这种紧张中，你会发现，完全没有观察者；只有注意力。只有在注意力分散的时候才有观察者和被观之物。当你以全部注意力看某样东西的时候，没有概念、准则和记忆的空间。理解这一点很重要，因为我们正在深入一种需要非常仔细地去研究的东西。
+
+  It is only a mind that looks at a tree or the stars or the sparkling waters of a river with complete self-abandonment that knows what beauty is, and when we are actually seeing we are in a state of love. We generally know beauty through comparison or through what man has put together, which means that we attribute beauty to some object. I see what I consider to be a beautiful building and that beauty I appreciate because of my knowledge of architecture and by comparing it with other buildings I have seen. But now I am asking myself, `Is there a beauty without object?' When there is an observer who is the censor, the experiencer, the thinker, there is no beauty because beauty is something external, something the observer looks at and judges, but when there is no observer - and this demands a great deal of meditation, of enquiry then there is beauty without the object.
+
+  唯有心智处于完全的无我（self-abandonment）状态来看树木或星星或闪耀的河水，才知道美是什么，而当我们真正看到的时候，我们就处于一种爱的状态中。通常，我们说美是通过比较，或通过人的共识，这意味着我们将美赋予了某个（客观）对象。我看到一幢我认为是美丽的建筑，我欣赏它的美，是因为我的建筑学知识以及通过与我见过的其他建筑进行了比较。但是，现在我在问自己，“是否有一种美是没有对象的？”当有观察者的时候，这个观察者就是检查者、经验者、思考者，就没有美，因为美是一种外部的东西，一种观察者看和评价的东西，但是当没有观察者 －－ 这需要大量的冥想、探询 －－ 就有了无对象的美。
+
+  Beauty lies in the total abandonment of the observer and the observed and there can be self-abandonment only when there is total austerity - not the austerity of the priest with its harshness, its sanctions, rules and obedience - not austerity in clothes, ideas, food and behaviour - but the austerity of being totally simple which is complete humility. Then there is no achieving, no ladder to climb; there is only the first step and the first step is the everlasting step.
+
+  美，在于对观者和所观之物的彻底放弃，而唯有完全的苦行，才能无我 －－ 不是神职人员的那种冷酷的、惩罚的、教条的、顺从的苦行 －－ 不是在衣、食、思、行上的苦行 －－ 而是完全地简单、完全地谦虚的苦行。这种苦行中没有“达成”，没有需要攀爬的阶梯；其中只有第一步，而这第一步即是永恒的一步。
+
+  Say you are walking by yourself or with somebody and you have stopped talking. You are surrounded by nature and there is no dog barking, no noise of a car passing or even the flutter of a bird. You are completely silent and nature around you is also wholly silent. In that state of silence both in the observer and the observed - when the observer is not translating what he observes into thought - in that silence there is a different quality of beauty. There is neither nature nor the observer. There is a state of mind wholly, completely, alone; it is alone - not in isolation - alone in stillness and that stillness is beauty. When you love, is there an observer? There is an observer only when love is desire and pleasure. When desire and pleasure are not associated with love, then love is intense. It is, like beauty, something totally new every day. As I have said, it has no today and no tomorrow.
+
+  比如你正独自或与人一起散步，你停止了交谈。你被大自然所包围，没有狗吠、没有车辆穿行的噪音甚至也没有鸟儿振翅。你完全地安静，周围的大自然也完全地安静。在这种观者与所观之物均安静的状态 －－ 观者不将所观之物转换成思想 －－ 中，在那种安静中，存在关于美的一种不同的品质。既没有大自然，也没有观察者。这是一种完整地、完全地孤独的状态 －－ 不是与世隔绝 －－ 而是在完全静止中孤独，而这种静止就是美。当你爱的时候，有观察者吗？只有在爱是欲望和快乐的时候才有观察者。当欲望和快乐与爱无关的时候，爱就是强烈的。就像美一样，爱每天都是完全崭新的。就像我说过的，爱没有今天也没有明天。
+
+  It is only when we see without any preconception, any image, that we are able to be in direct contact with anything in life. All our relationships are really imaginary - that is, based on an image formed by thought. If I have an image about you and you have an image about me, naturally we don't see each other at all as we actually are. What we see is the images we have formed about each other which prevent us from being in contact, and that is why our relationships go wrong.
+
+  唯有当我们不带先入之见、不带意象地去看的时候，我们才能与生活中的事物直接地接触。我们的所有关系实际都是想象（出来）的 －－ 即，基于由思想形成的意象。如果我对你有意象，你对我有意象，自然地我们就完全看不到彼此的真正样子。我们看到的，是我们对对方形成的意象，这意象妨碍了我们接触，这就是我们的关系出问题的原因。
+
+  When I say I know you, I mean I knew you yesterday. I do not know you actually now. All I know is my image of you. That image is put together by what you have said in praise of me or to insult me, what you have done to me - it is put together by all the memories I have of you - and your image of me is put together in the same way, and it is those images which have relationship and which prevent us from really communing with each other.
+
+  当我说我了解你，我的意思是我昨天了解你。我不知道你现在实际的样子。我所知道的只是我（思想中）关于你的意象。这个意象由你曾经对我的称赞和侮辱、对我的所言和所为组成 －－ 由我对你的所有记忆组成 －－ 而你（思想中）关于我的意象也是由同样的方式组成，正是这些意象之间产生了关系，从而妨碍了我们真正地与彼此交流。
+
+  Two people who have lived together for a long time have an image of each other which prevents them from really being in relationship. If we understand relationship we can co-operate but co-operation cannot possibly exist through images, through symbols, through ideological conceptions. Only when we understand the true relationship between each other is there a possibility of love, and love is denied when we have images. Therefore it is important to understand, not intellectually but actually in your daily life, how you have built images about your wife, your husband, your neighbour, your child, your country, your leaders, your politicians, your gods - you have nothing but images.
+
+  两个长期住在一起的人，对彼此有意象，这妨碍了他们真正的关系。如果你理解了关系，我们就能够合作，但合作不可能通过意象、通过符号、通过意识形态的概念而存在。唯有当我们理解了彼此间真正的关系，才有爱的可能，而当我们有意象的时候，爱就没有了。因而，理解 －－ 在日常生活中真正地理解而非在理性上理解 －－ 你是如何构建了对于你妻子、丈夫、邻居、孩子、国家、领袖、政治家和上帝的意象，就很重要 －－ 除了意象，你什么也没有。
+
+  These images create the space between you and what you observe and in that space there is conflict, so what we are going to find out now together is whether it is possible to be free of the space we create, not only outside ourselves but in ourselves, the space which divides people in all their relationships.
+
+  这些意象在你和你所观之物之间创造了间隔，而这间隔之中就有冲突，故我们现在想要一起弄明白的就是，是否可能摆脱我们所创造的这种间隔的影响，不仅仅是外部的间隔，还包括我们自身中的间隔，这种在人们的所有关系中将他们分隔开来的间隔。
+
+  Now the very attention you give to a problem is the energy that solves that problem. When you give your complete attention - I mean with everything in you - there is no observer at all. There is only the state of attention which is total energy, and that total energy is the highest form of intelligence. Naturally that state of mind must be completely silent and that silence, that stillness, comes when there is total attention, not disciplined stillness. That total silence in which there is neither the observer nor the thing observed is the highest form of a religious mind. But what takes place in that state cannot be put into words because what is said in words is not the fact. To find out for yourself you have to go through it.
+
+  此时你给予一个问题的注意力，正是解决该问题的能量。当你付出完全的注意力时 －－ 我的意思是你的全心全意 －－ 就完全没有了观察者。（其中）只有这种注意的状态，这种状态就是全部的能量，而这全部的能量就是理性的最高形式。自然地，这种心智状态一定是完全寂静的，而这种寂静、这种静止，来自完全的注意力，而非约束出的静止。这种完全的寂静中，既没有观者也没有被观之物，这种寂静就是一个宗教心智的最高形式。但是在这种状态中发生的东西，不能诉诸语言，因为语言所描述的并非事实。要弄明白你得亲自去经历。
+
+  Every problem is related to every other problem so that if you can solve one problem completely - it does not matter what it is - you will see that you are able to meet all other problems easily and resolve them. We are talking, of course, of psychological problems. We have already seen that a problem exists only in time, that is when we meet the issue incompletely. So not only must we be aware of the nature and structure of the problem and see it completely, but meet it as it arises and resolve it immediately so that it does not take root in the mind. If one allows a problem to endure for a month or a day, or even for a few minutes, it distorts the mind. So is it possible to meet a problem immediately without any distortion and be immediately, completely, free of it and not allow a memory, a scratch on the mind, to remain? These memories are the images we carry about with us and it is these images which meet this extraordinary thing called life and therefore there is a contradiction and hence conflict. Life is very real - life is not an abstraction - and when you meet it with images there are problems.
+
+  每个问题都与所有其他问题相关联，以至于如果你能完全地解决一个问题 －－ 不管是什么问题 －－ 你就会发现你有能力轻易面对（meet）其他所有问题并解决它们。当然，我们说的是心理上的问题。我们已然看到，问题只在时间中存在，这时间就是我们没有完全面对问题的时间。如果一个人允许问题持续一个月或一天，或甚至几分钟，问题就会扭曲心智。故是否可能没有任何扭曲，立即面对问题，并立即、完全地摆脱问题（的困扰），不允许头脑中留下记忆和痕迹？这些记忆就是我们所持有的意象，正是这些意象遇见（meet）了“生活”这个非凡的东西，因而就有矛盾，继而有冲突。生活是非常真实的 －－ 生活不是抽象 －－ 当你持有意象面对它的时候，就有了问题。
+
+  Is it possible to meet every issue without this space-time interval, without the gap between oneself and the thing of which one is afraid? It is possible only when the observer has no continuity, the observer who is the builder of the image, the observer who is a collection of memories and ideas, who is a bundle of abstractions.
+
+  是否可能来面对每个问题时没有这种时空间隔，没有人和人所害怕的问题之间的间隔？只有当观察者没有连续性的时候才有可能，这观察者就是意象的制造者、就是记忆和想法的集合、就是抽象的集合。
+
+  When you look at the stars there is you who are looking at the stars in the sky; the sky is flooded with brilliant stars, there is cool air, and there is you, the observer, the experiencer, the thinker, you with your aching heart, you, the centre, creating space. You will never understand about the space between yourself and the stars, yourself and your wife or husband, or friend, because you have never looked without the image, and that is why you do not know what beauty is or what love is. You talk about it, you write about it, but you have never known it except perhaps at rare intervals of total self-abandonment. So long as there is a centre creating space around itself there is neither love nor beauty. When there is no centre and no circumference then there is love. And when you love you are beauty.
+
+  当你看星星的时候，有一个“你”在看着天空中的星星；天空中布满了闪耀的星星，有凉爽的空气，有你，观察者，经验者，思考者，你带着你伤痛的心，你这个中心在制造空间。你永远不会理解你自己和星星之间，你自己和你的妻子或丈夫、或朋友之间，的这空间，因为你从没有不带意象地看，而这就是为什么，你不知道美是什么，不知道爱是什么。你谈论它，你写作它，但你从未了解它，除非，也许，在偶然的瞬间你完全地无我（self-abandonment)了。只要有中心在其周围制造空间，就既不会有爱也不会有美。当没有中心、没有环境的时候，就有了美。而当你爱的时候你就是美。
+
+  When you look at a face opposite, you are looking from a centre and the centre creates the space between person and person, and that is why our lives are so empty and callous. You cannot cultivate love or beauty, nor can you invent truth, but if you are all the time aware of what you are doing, you can cultivate awareness and out of that awareness you will begin to see the nature of pleasure, desire and sorrow and the utter loneliness and boredom of man, and then you will begin to come upon that thing called `the space'.
+
+  当你看对面的一张脸的时候，你是从一个中心在看，而这个中心在人与人之间制造了空间，而这就是为什么我们的生活如此空虚和无情。你不能培养爱或美，也不能发明真相，但是如果你随时都知道你在做什么，你就能培养觉察，而在这种觉察中你就开始看到了快乐的本质，看到了人的欲望、悲伤、彻底的孤独和厌倦，然后你就会开始邂逅那种叫做“空间”的东西。
+
+  When there is space between you and the object you are observing you will know there is no love, and without love, however hard you try to reform the world or bring about a new social order or however much you talk about improvements, you will only create agony. So it is up to you. There is no leader, there is no teacher, there is nobody to tell you what to do. You are alone in this mad brutal world.
+
+  当在你和你所观察的对象之间有空间，你会知道，没有爱，而没有爱，不管你如何努力去改变世界或引入一种新的社会秩序或无论你怎么谈论改进，你只会创造痛苦。故（如何做）取决于你了。没有领袖，没有导师，没有任何人告诉你做什么。你在这个疯狂残忍的世界上是孤独的。
